@@ -2,7 +2,7 @@
 - 👀 I’m interested in Mainecrft
 - 🌱 I’m currently learning Mainecrft
 - 💞️ I’m looking to collaborate on Mainecrft
-- 📫 How to reach me Mainecrft server
+- 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
